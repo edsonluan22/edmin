@@ -20,3 +20,8 @@ Cyberbullying.
 ![](https://youtu.be/psieH5qBIpk)
 
                                                                                                   Quando ocorre o bullying?
+
+O bullying acontece por meio de agressões físicas, como: chutes, empurrões, brincadeiras que machucam, entre outras, ou por meio de agressão verbal que consiste em ameaçar ou intimidar alguém; humilhar por qualquer motivo; excluir; discriminar por cor, raça ou sexo; falar mal sem motivos e outras situações.
+
+
+![](https://media.tenor.com/8o5zzcKRkRAAAAAC/bully-soccer.gif)
